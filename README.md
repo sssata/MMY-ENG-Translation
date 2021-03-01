@@ -10,8 +10,8 @@
 Japanese | English
 ---------|--------
 森羅万象の悪戦苦闘も | If you take the bitter struggles of the world,
-マヨネーズかけたら | and cover it in mayonnaise,
-大体おいしくなる？ | will they also become tasty?
+マヨネーズかけたら | And cover it in mayonnaise,
+大体おいしくなる？ | Will they also become tasty?
 君が泣いてもお腹は空くよ | You cry out, yet your stomach is still empty
 消化できなかったごめんごめん | Sorry, sorry, I couldn’t digest it
 -|-
@@ -22,7 +22,7 @@ Japanese | English
 Ah! | Ah!
 -|-
 混沌情報過多のレストランで | Spilling tea on the menu of outright lies,
-嘘っぱちのメニューにお茶こぼして | in the restaurant of information overflow chaos
+嘘っぱちのメニューにお茶こぼして | In the restaurant of information overflow chaos
 君とMOGUMOGU(MOGUMOGU) | With you we’ll Munch Munch (Munch Munch)
 MOGUMOGU(MOGUMOGU) | Munch Munch (Munch Munch),
 銃撃戦の真ん中でMOGUMOGU(うぎゃー!) | Munch Munch, in the middle of a raging firefight (gah~!)
