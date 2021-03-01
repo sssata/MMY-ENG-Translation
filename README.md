@@ -77,12 +77,9 @@ MOGUMOGU | Munch Munch
 この世を味わうんだ | To get a taste of this world,
 うまうま | Yum Yum
 -|-
-MOGUMOGU | -
-MOGUMOGU | -
-MOGUMOGU | -
-MOGUMOGU | -
-MOGUMOGU | -
-MOGUMOGU | -
+MOGUMOGU MOGUMOGU | -
+MOGUMOGU MOGUMOGU | -
+MOGUMOGU MOGUMOGU | -
 MOGUMOGU | -
 やみぃ | Yummy
 ...|...
