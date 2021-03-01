@@ -74,43 +74,78 @@ A crowd of starving yokai from the mountains and rivers,
 Wishing for a future where they can have their fill.
 
 MOGUMOGU(MOGUMOGU)
+
 Munch Munch (Munch Munch),
+
 MOGUMOGU(MOGUMOGU)
+
 Munch Munch (Munch Munch),
+
 世界が終わる前に
+
 Before the world ends
 
+
 MOGUMOGU
+
 Munch Munch
+
 やみぃマジ神
+
 Yummy, legit godly
+
 やむやむありのまんま
+
 Yum Yum, just the way it is
+
 MOGUMOGU
+
 Munch Munch
+
 やみぃMagicComing
+
 Yummy, magic coming,
+
 この世を味わうんだ
+
 To get a taste of this world,
+
 うまうま
+
 Yum Yum
 
 理論武装のミルフィーユサンド(さんど)
+
 A mille-feuille sandwich armed with ideology,
+
 匿名希望のオーロラソース(そーす)
+
 Aurora sauce wishing to stay anonymous,
+
 大雑把な味付け多めに見てよ
+
 Cut this crude seasoning some slack
+
 おいしくなったらおｋおｋ
+
 If it became delicious it’s OK, OK.
+
 良いモン悪いモンいっぱい食べて
+
 Good reasons, bad reasons, I’ll eat them all up and,
+
 汚れた口元拭います
+
 I’ll wipe up my soiled lips
+
 おにぎりピザケーキ豪華なフルコース
+
 Onigiri, Pizza, Cake, an extravagant full course meal
+
 罠を疑い気を付けます
+
 Be careful of the suspected traps
+
 Ah!
 
 妄想流言飛語のバイキングで
