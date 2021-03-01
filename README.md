@@ -13,7 +13,7 @@ Japanese | English
 マヨネーズかけたら | And cover it in mayonnaise,
 大体おいしくなる？ | Will they also become tasty?
 君が泣いてもお腹は空くよ | You cry out, yet your stomach is still empty
-消化できなかったごめんごめん | Sorry, sorry, I couldn’t digest it
+消化できなかったごめんごめん | I couldn’t digest it, sry sry
 -|-
 酸いも甘いも勝手に食べて | Eating sweet things and sour things as I please,
 ご迷惑おかけしています | Excuse me if it’s causing trouble
@@ -80,8 +80,7 @@ MOGUMOGU | Munch Munch
 MOGUMOGU | -
 MOGUMOGU | -
 MOGUMOGU | -
-MOGU | -
-MOGU | -
+MOGUMOGU | -
 MOGUMOGU | -
 MOGUMOGU | -
 MOGUMOGU | -
