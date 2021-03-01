@@ -19,7 +19,7 @@ Japanese | English
 ご迷惑おかけしています | Excuse me if it’s causing trouble
 パクチーな掟変な味のジュース | Law of coriander, Strange flavored juice,
 心を無にして飲み込みます | I’ll empty my mind and gulp it all down
-Ah! | -
+Ah! | Ah!
 -|-
 混沌情報過多のレストランで | Spilling tea on the menu of outright lies,
 嘘っぱちのメニューにお茶こぼして | in the restaurant of information overflow chaos
@@ -50,7 +50,7 @@ MOGUMOGU | Munch Munch
 汚れた口元拭います | I’ll wipe up my soiled lips
 おにぎりピザケーキ豪華なフルコース | Onigiri, Pizza, Cake, an extravagant full course meal
 罠を疑い気を付けます | Be careful of the suspected traps
-Ah! | -
+Ah! | Ah!
 -|-
 妄想流言飛語のバイキングで | Buffet of delusional rumors
 毒入りと絶品料理選り分けて | Sift through a poisoned masterpiece cuisine and
