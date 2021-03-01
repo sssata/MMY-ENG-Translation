@@ -9,7 +9,7 @@
 
 Japanese | English
 ---------|--------
-森羅万象の悪戦苦闘も | If you take the bitter struggles of the world,
+森羅万象の悪戦苦闘も | If you take the bitter struggles of all the world,
 マヨネーズかけたら | And cover it in mayonnaise,
 大体おいしくなる？ | Will they also become tasty?
 君が泣いてもお腹は空くよ | You cry out, yet your stomach is still empty
