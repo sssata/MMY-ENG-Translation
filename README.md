@@ -9,14 +9,14 @@
 
 Japanese | English
 ---------|--------
-森羅万象の悪戦苦闘も | If you take the bitter struggles of all the world,
-マヨネーズかけたら | And cover it in mayonnaise,
-大体おいしくなる？ | Will they also become tasty?
+森羅万象の悪戦苦闘も | If you add some mayonnaise
+マヨネーズかけたら | will even the harsh struggles of all creation
+大体おいしくなる？ | become tasty?
 君が泣いてもお腹は空くよ | You cry out, yet your stomach is still empty
 消化できなかったごめんごめん | I couldn’t digest it, sry sry
 -|-
-酸いも甘いも勝手に食べて | Eating sweet things and sour things as I please,
-ご迷惑おかけしています | Excuse me if it’s causing trouble
+酸いも甘いも勝手に食べて | My deepest apologies, I'm just
+ご迷惑おかけしています | eating things sweet and sour as I please
 パクチーな掟変な味のジュース | Law of coriander, Strange flavored juice,
 心を無にして飲み込みます | I’ll empty my mind and gulp it all down
 Ah! | Ah!
@@ -39,17 +39,17 @@ MOGUMOGU | Munch Munch
 MOGUMOGU | Munch Munch
 やみぃMagicComing | Yummy, magic coming,
 この世を味わうんだ | To get a taste of this world,
-うまうま | Yum Yum
+うまうま | Tasty!
 -|-
-理論武装のミルフィーユサンド(さんど) | A mille-feuille sandwich armed with ideology,
-匿名希望のオーロラソース(そーす) | Aurora sauce wishing to stay anonymous,
+理論武装のミルフィーユサンド(さんど) | Armed ideaologically, mille-feuille sandwich
+匿名希望のオーロラソース(そーす) | Desiring anonymity, aurora sauce
 大雑把な味付け多めに見てよ | Cut this crude seasoning some slack
 おいしくなったらおｋおｋ | If it became delicious it’s OK, OK.
 -|-
 良いモン悪いモンいっぱい食べて | Good reasons, bad reasons, I’ll eat them all up and,
-汚れた口元拭います | I’ll wipe up my soiled lips
+汚れた口元拭います | I'll wipe the dirt off my lips
 おにぎりピザケーキ豪華なフルコース | Onigiri, Pizza, Cake, an extravagant full course meal
-罠を疑い気を付けます | Be careful of the suspected traps
+罠を疑い気を付けます | I'm always careful and suspicious of traps
 Ah! | Ah!
 -|-
 妄想流言飛語のバイキングで | Buffet of delusional rumors
