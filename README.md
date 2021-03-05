@@ -42,11 +42,11 @@ MOGUMOGU | Munch Munch
 うまうま | Tasty!
 -|-
 理論武装のミルフィーユサンド(さんど) | Armed ideaologically, mille-feuille sandwich
-匿名希望のオーロラソース(そーす) | Desiring anonymity, aurora sauce
+匿名希望のオーロラソース(そーす) | Wishing for anonymity, aurora sauce
 大雑把な味付け多めに見てよ | Cut this crude seasoning some slack
 おいしくなったらおｋおｋ | If it became delicious it’s OK, OK.
 -|-
-良いモン悪いモンいっぱい食べて | Good reasons, bad reasons, I’ll eat them all up and,
+良いモン悪いモンいっぱい食べて | Good things, bad things, I’ll eat them all up and,
 汚れた口元拭います | I'll wipe the dirt off my lips
 おにぎりピザケーキ豪華なフルコース | Onigiri, Pizza, Cake, an extravagant full course meal
 罠を疑い気を付けます | I'm always careful and suspicious of traps
@@ -75,7 +75,7 @@ MOGUMOGU | Munch Munch
 MOGUMOGU | Munch Munch
 やみぃMagicComing | Yummy, Magic Coming
 この世を味わうんだ | To get a taste of this world,
-うまうま | Yum Yum
+うまうま | Tasty!
 -|-
 MOGUMOGU MOGUMOGU | -
 MOGUMOGU MOGUMOGU | -
