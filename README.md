@@ -13,7 +13,7 @@ Japanese | English
 マヨネーズかけたら | will even the harsh struggles of all creation
 大体おいしくなる？ | become tasty?
 君が泣いてもお腹は空くよ | You cry out, yet your stomach is still empty
-消化できなかったごめんごめん | I couldn’t digest it, sry sry
+消化できなかったごめんごめん | You couldn’t digest it, sry sry
 -|-
 酸いも甘いも勝手に食べて | My deepest apologies, I'm just
 ご迷惑おかけしています | eating things sweet and sour as I please
