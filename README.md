@@ -10,7 +10,7 @@
 Japanese | English
 ---------|--------
 森羅万象の悪戦苦闘も | If you add some mayonnaise
-マヨネーズかけたら | will even the harsh struggles of all creation
+マヨネーズかけたら | will even the bitter struggles of the world
 大体おいしくなる？ | become tasty?
 君が泣いてもお腹は空くよ | You cry out, yet your stomach is still empty
 消化できなかったごめんごめん | You couldn’t digest it, sry sry
